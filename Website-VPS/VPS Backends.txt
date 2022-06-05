@@ -1,0 +1,3 @@
+41.216.189.21 current agentmimos.ml backend
+195.58.38.214 mimos vps
+181.214.231.8 current mimos.cf backend
