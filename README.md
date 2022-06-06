@@ -13,9 +13,6 @@ The protection shit i cant spell is from a github globalban/antinuke bot lmao
 
 ![Kekw Cum](https://cdn.discordapp.com/attachments/982028980804784208/983335206134120448/unknown.png)
 
-### Expose Stuff :
 
-
-https://www.youtube.com/watch?v=KpAOElJjV7Q
 Why u check buyer's computer components? Miner :kekw:
 ![Kekw Cum](https://cdn.discordapp.com/attachments/982028980804784208/983325333778468884/unknown.png?size=4096)
