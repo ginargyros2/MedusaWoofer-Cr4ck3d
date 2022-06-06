@@ -15,4 +15,4 @@ The protection shit i cant spell is from a github globalban/antinuke bot lmao
 
 ### Expose Stuff :
 
-![Video](https://www.youtube.com/watch?v=KpAOElJjV7Q)
+
