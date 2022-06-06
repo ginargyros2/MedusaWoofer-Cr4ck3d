@@ -14,5 +14,7 @@ The protection shit i cant spell is from a github globalban/antinuke bot lmao
 ![Kekw Cum](https://cdn.discordapp.com/attachments/982028980804784208/983335206134120448/unknown.png)
 
 
-Why u check buyer's computer components? Miner :kekw:
-![Kekw Cum](https://cdn.discordapp.com/attachments/982028980804784208/983325333778468884/unknown.png?size=4096)
+Spinayy's Face:
+![Kekw Cum](https://cdn.discordapp.com/attachments/982028980804784208/983023413453008956/IMG_3465.png)
+Mimos's Face:
+![Kekw Cum](https://cdn.discordapp.com/attachments/982028980804784208/983338391208853525/unknown.png?size=4096)
