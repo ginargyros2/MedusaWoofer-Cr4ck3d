@@ -1,6 +1,5 @@
 # MedusaSpoofer-Retards
-Fucking retard spoofer and bypasser discord.gg/medusa woofer everything is pated lmao
-They use keyauth 
+Fucking retard spoofer and bypasser discord.gg/medusa woofer everything is pasted lmao
 
 Retard Owners:
 Spinayy#9999 (He is prob dev of source)
