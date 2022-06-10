@@ -1,6 +1,8 @@
 # MedusaWoofer-Retards
 Fucking retard w00fer and byp4ss3r discord.gg/medusawoofer everything is pasted lmao
 
+Cr4ck3d by Dimis#1821, Greko#1821, LDN#1337
+
 Retard Owners:
 Spinayy#9999 (He is prob dev of source)
 Agent Mimos#0001 (He has the websites and shit bots prob idk)
